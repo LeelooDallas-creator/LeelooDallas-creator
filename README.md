@@ -2,7 +2,7 @@
 - 👀 I’m interested in series, books, music and handicrafts
 - 🌱 I’m currently learning russian, polish, code
 - 💞️ I’m looking to collaborate on cool projects
-- 📫 How to reach me ...
+- 📫 How to reach me : by mail, on my profile
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: my name is not from someone of my blood family
 
